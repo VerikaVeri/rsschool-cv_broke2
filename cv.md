@@ -35,3 +35,11 @@
                 &lt;/section&gt;
                 </pre>
   </code>
+6. Coding tests, projects from RS School courses, Codewars tasks
+7. 2021-12 – Current
+Junior: Front-End Developer
+RS School – Online
+2003-09 – 2008-06
+Bachelor of Arts: History of Arts
+Belarusian State Academy of Art – Belarus
+8. English B2, living in European countries
